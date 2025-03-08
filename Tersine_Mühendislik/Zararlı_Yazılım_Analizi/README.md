@@ -1,0 +1,1 @@
+# Siber_guvenlik_notlarim
